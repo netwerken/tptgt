@@ -10,7 +10,7 @@ language: nl
 # Site settings
 title: "TPTGT"
 description: > # this means to ignore newlines until "email:"
-   Turkse pizza tent! Got talent?
+   Turkse pizzatent! Got talent?
 
 email: a-mail@mail.mail
 #blog logo
