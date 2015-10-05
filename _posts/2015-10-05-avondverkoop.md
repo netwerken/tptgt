@@ -16,4 +16,4 @@ Het zilte karakter van deze pizza overheerste wel enigszins, maar dit werd goedg
 sappig mals vlees. Ook het prijskaartje (€4,50) dat hieraan werd gehangen stemde mij zeer gunstig en maakte me eigenlijk nog gretiger naar voer dan normaliter.
 Verbeterpunten voor mij zitten vooral in de hoeveelheid groente, die ik aan de lage kant vond, en de zompige structuur van het broodje. Toch was ik al
 met al uiterst tevreden over deze warme hap, die ik wegspoelde met cola en afkoelde met een romige Magnum Almond, een zekere aanrader! 
-Al met al kom ik op een lekkere voldoende uit van 3.7 sterren! 
+Al met al kom ik op een lekkere voldoende uit van 3.7 / 5 sterren! 
