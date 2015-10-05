@@ -13,7 +13,7 @@ image: https://cloud.githubusercontent.com/assets/14966904/10287326/93d8daf6-6b9
 
 Ik verorberde net dit hapje hemel met mijn beste maat in West. De smaaksensatie die ik in mijn mond ervaarde na de eerste hap was onevenaarbaar.
 Het zilte karakter van deze pizza overheerste wel enigszins, maar dit werd goedgemaakt door de aanwezigheid van ongelooflijke hoeveelheden 
-sappig mals vlees. Ook het prijskaartje (€4,50) dat hieraan werd gehangen stemde mij zeer gunstig en maakte me eigenlijk nog gretiger naar voer dan normaliter.
+sappig mals vlees. Ook het prijskaartje (€4,50, Lahmacun met döner) dat hieraan werd gehangen stemde mij zeer gunstig en maakte me eigenlijk nog gretiger naar voer dan normaliter.
 Verbeterpunten voor mij zitten vooral in de hoeveelheid groente, die ik aan de lage kant vond, en de zompige structuur van het broodje. Toch was ik al
 met al uiterst tevreden over deze warme hap, die ik wegspoelde met cola en afkoelde met een romige Magnum Almond, een zekere aanrader! 
 Al met al kom ik op een lekkere voldoende uit van 3.7 / 5 sterren! 
