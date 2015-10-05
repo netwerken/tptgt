@@ -9,6 +9,6 @@ tags:
 image: https://cloud.githubusercontent.com/assets/14966904/10270432/60b478f2-6af1-11e5-9004-704e24631aba.png
 ---
 
-# This is Adriaan
+# Adriaan, de acrobaat
 
-Doei!
+Ik hoor je al denken: "en Bassie zit vol kattenkwaad". Dat kan best zijn, maar deze Adriaan zit ook vol kattenkwaad. Helaas ga ik daar verder niet op in op dit blog. Graag verwijs ik je dan door naar de blog van [Adriaan]({http://demaandvanadriaan.nl/}). Deze geweldige IT'er heeft een voorliefde voor de Turkse Pizza en draagt graag bij aan de zoektocht naar de perfecte Turkse pizza. Het jureren van pizzatenten in Amsterdam was vooralsnog een priveéhobby, maar door Adriaan wordt deze hobby een publieke aangelegenheid. Dit blog gaat over Turkse pizza's en de tenten die deze delicatesse durven te serveren. Wij, TPTGT, zijn envoudige jongens die opzoek zijn naar een subliem Turks pizzaatje voor een degelijke prijs geserveerd in een prachtig stekje in Amsterdam. Ik wilde dus zeggen: "Adriaan, bedankt voor de start-up hulp!" Omslachtig zeg, dat bloggen!
