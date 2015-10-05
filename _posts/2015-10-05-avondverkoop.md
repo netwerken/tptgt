@@ -4,8 +4,8 @@ title:  "Avondverkoop"
 date:   2015-10-04 23:13:00
 categories: 
 author: "Sietse"
-author_image: https://europeanstudentthinktank.files.wordpress.com/2015/03/sietse-zw1.jpg
-tags: 
+author_image: https://camo.githubusercontent.com/38dd364e510c4a205e6e2ba461a93b5f96ff5316/68747470733a2f2f6575726f7065616e73747564656e747468696e6b74616e6b2e66696c65732e776f726470726573732e636f6d2f323031352f30332f7369657473652d7a77312e6a7067
+tags: Sietse, Overtoom, West
 image: https://cloud.githubusercontent.com/assets/14966904/10287326/93d8daf6-6b92-11e5-8cd2-3a15e4463ed8.jpg
 ---
 
