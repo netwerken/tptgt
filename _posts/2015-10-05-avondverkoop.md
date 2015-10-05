@@ -9,7 +9,7 @@ tags: Sietse, Overtoom, West
 image: https://cloud.githubusercontent.com/assets/14966904/10287326/93d8daf6-6b92-11e5-8cd2-3a15e4463ed8.jpg
 ---
 
-# Avondverkoop, overtoom 478
+# Avondverkoop, Overtoom 478
 
 Ik verorberde net dit hapje hemel met mijn beste maat in West. De smaaksensatie die ik in mijn mond ervaarde na de eerste hap was onevenaarbaar.
 Het zilte karakter van deze pizza overheerste wel enigszins, maar dit werd goedgemaakt door de aanwezigheid van ongelooflijke hoeveelheden 
